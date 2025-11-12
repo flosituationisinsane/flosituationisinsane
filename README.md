@@ -2,7 +2,7 @@
 
 ![](https://file.garden/aOcZfwH5a01gtonb/floponytown.gif)
 
-[Atabook](https://flosituation.atabook.org/) • [interests](https://github.com/cobaltpngsituation/thefootsoldier) • [pronouns.cc](https://pronouns.cc/@cobaltpng) • [StrawPage](https://flopng.straw.page/)
+[Atabook](https://flosituation.atabook.org/) • [interests](https://github.com/flosituation/stomolophusmeleagris) • [pronouns.cc](https://pronouns.cc/@cobaltpng) • [StrawPage](https://flopng.straw.page/)
 
 hey & welcome. i'm an easy-going, friendly person.
 
