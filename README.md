@@ -31,6 +31,8 @@ any vivziepop media, blueycapsules, countryhumans, dream/quackitysmp, five night
 
 ginger x sprout / don't tell cosmo
 
+spawnism
+
 __Thin Ice__
 
 enemies-to-lovers ships
