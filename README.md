@@ -99,7 +99,7 @@ Doing voice impressions | drawing | listening to music | playing video games
 media
 </summary>
 
-Auromancy | Beavis and Butthead | Blue's Clues | Care Bears | Child's Play (excl. 2019) | Cold Ones, Cr1tiKaL | Fresh Cut Slim | Ghost Adventures | Indiana Jones | Markiplier | MrHalloweenJunkie | Poofesure | Pyrocynical | Rick and Morty | Shrek | Smiling Friends | SomeOrdinaryGamers | The Brave Little Toaster | The Librarian | The Wiggles (w/the og cast) | Toy Story | WickedWiz
+Auromancy | Beavis and Butthead | Blue's Clues | Care Bears | Child's Play (excl. 2019) | Cold Ones | Cr1tiKaL | Fresh Cut Slim | Ghost Adventures | Indiana Jones | Markiplier | MrHalloweenJunkie | Poofesure | Pyrocynical | Rick and Morty | Shrek | Smiling Friends | SomeOrdinaryGamers | The Brave Little Toaster | The Librarian | The Wiggles (w/the og cast) | Toy Story | WickedWiz
 
 </details>
 
