@@ -11,7 +11,7 @@
   
 cobalt/flo ﹒⠀she / her⠀﹒⠀EST
 
-20 yrs old ﹒ 12.07 ♐ ﹒ canadian 🍁 ﹒ ISFP-T ﹒ 9w1
+21 yrs old ﹒ 12.07 ♐ ﹒ canadian 🍁 ﹒ ISFP-T ﹒ 9w1
 
 c+h √ ﹒ copying, color-dropping, taking insp. ✖
 
