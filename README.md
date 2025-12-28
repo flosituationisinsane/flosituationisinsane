@@ -67,7 +67,7 @@ enemies-to-lovers ships
 
 Forsaken fans
 
-fruitcake fans
+cosmo x sprout / fruitcake fans
 
 politics
 
