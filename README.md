@@ -103,4 +103,23 @@ Auromancy | Beavis and Butthead | Blue's Clues | Care Bears | Child's Play (excl
 
 </details>
 
+<details>
+<summary>
+.　︵︵ 　misc.
+</summary>
+
+Canon x oc | casinocore | Chicken Smoothie | creepypastas | clowns | DC | *dragons* | Disney | Homestuck | Marvel | oc x oc | pirates | 
+Pixar | SCP | underwater creatures | urbex | *zombies*
+</details>
+
+<details>
+<summary>
+◡◡  stamps
+</summary>
+  
+![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Banette.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/BLU%20stamp.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Cofagrigus.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Demoman.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/DRG.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Espeon.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Gmod.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Greninja.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Bentley.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Dr%20Zomboss.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Murray.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Rayman.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20Sly.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/I%20love%20zombies.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Indie.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/L4D.jpg) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Lopunny.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Markiplier.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Maxmoefoe.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Meowstic.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Mismagius.png) ![]((https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Greninja.jpg)) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Mr.%20Mime%20stamp.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Pokemon%20Y.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Pyro.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Rayman%20target.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Rick%20and%20Morty.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Roblox.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Sableye.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/SCP.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Scrafty.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Seismitoad.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Sf.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Sly%20Cooper%20fan.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Soldier%20main.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/TBLT.png) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Terraria.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Undead%20PVZ%20fan.gif) ![](https://file.garden/Z0TC-0mCggxGeVLO/Stamps/Vanilluxe%20stamp.png) 
+
+
+</details>
+
 [![Hits](https://hits.sh/github.com/flopng/hits.svg?label=visitors&color=0047ab&labelColor=0050c2)](https://hits.sh/github.com/flopng/hits/)
