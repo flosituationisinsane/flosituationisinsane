@@ -122,4 +122,4 @@ Pixar | SCP | underwater creatures | urbex | *zombies*
 
 </details>
 
-[![Hits](https://hits.sh/github.com/flopng/hits.svg?label=visitors&color=0047ab&labelColor=0050c2)](https://hits.sh/github.com/flopng/hits/)
+[![Hits](https://hits.sh/github.com/flopng/hits.svg?style=plastic&label=jellyfishlings&color=003f96&labelColor=0047ab)](https://hits.sh/github.com/flopng/hits/)
