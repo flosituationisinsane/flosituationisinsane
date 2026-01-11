@@ -99,7 +99,7 @@ Doing voice impressions | drawing | listening to music | playing video games
 ◟ media
 </summary>
 
-Auromancy | Beavis and Butthead | Blue's Clues | Care Bears | Child's Play (excl. 2019) | Cold Ones | Cr1tiKaL | Fresh Cut Slim | Ghost Adventures | Indiana Jones | Markiplier | MrHalloweenJunkie | Poofesure | Pyrocynical | Rick and Morty | Shrek | Smiling Friends | SomeOrdinaryGamers | The Brave Little Toaster | The Librarian | The Wiggles (w/the og cast) | Toy Story | WickedWiz
+Auromancy | Beavis and Butthead | Blue's Clues | Care Bears | Child's Play (excl. 2019) | Cold Ones | Cr1tiKaL | *Fresh Cut Slim* | Ghost Adventures | Indiana Jones | Markiplier | MrHalloweenJunkie | Poofesure | Pyrocynical | Rick and Morty | Shrek | Smiling Friends | SomeOrdinaryGamers | The Brave Little Toaster | The Librarian | The Wiggles (w/the og cast) | Toy Story | WickedWiz
 
 </details>
 
@@ -108,8 +108,7 @@ Auromancy | Beavis and Butthead | Blue's Clues | Care Bears | Child's Play (excl
 .　︵︵ 　misc.
 </summary>
 
-Canon x oc | casinocore | Chicken Smoothie | creepypastas | clowns | DC | *dragons* | Disney | Homestuck | Marvel | oc x oc | pirates | 
-Pixar | SCP | underwater creatures | urbex | *zombies*
+Canon x oc | casinocore | Chicken Smoothie | creepypastas | clowns | DC | *dragons* | Disney | Homestuck | marine life | Marvel | oc x oc | pirates | Pixar | SCP | urbex | *zombies*
 </details>
 
 <details>
