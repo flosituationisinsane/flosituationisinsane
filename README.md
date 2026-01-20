@@ -148,4 +148,4 @@ Canon x oc ships 。Chicken Smoothie (website) 。creepypastas 。clowns 。DC �
 
 ###
 
-[![Hits](https://hits.sh/github.com/cobaltpng/hits.svg?style=plastic&label=fellow%20zombies&color=556e35&labelColor=5d783a)](https://hits.sh/github.com/cobaltpng/hits/)
+[![Hits](https://hits.sh/github.com/flopngsituation.svg?label=fellow%20jellyfish&color=1489d1&labelColor=1693e1)](https://hits.sh/github.com/flopngsituation/)
